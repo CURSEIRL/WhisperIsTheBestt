@@ -1,21 +1,13 @@
-Hi! Im Whisper! call me whatever you want! 
+Hi. I am Whisper, I go by Whisp, Mangle or Mang! 
 
+I am a female, pls be patient with me, i have Adhd, ptsd, major depression and anxiety!
 
-I mostly play ponytown and roblox! 🎀
+Ships to int: Sonadow, Sonamy, Shadamy, Surgamy, Silvamy, Sonilver, Shadilver, Salamy, Sonally ect!
 
-ponytown: 
-I dont really take friend request but if i like your personality!
-Pls just ask if you want to copy my skins. i might say yes. but i mostly say yes to my friends.
-i have ADHD, depression, and anxiety so pls bear with me <3
-im mostly near the STH or Near dock
-feel free to sit and talk im always C + H
-I am mostly on the English servers but i might go to the Spanish/Portuguese server
+Ships dni: Any minor ships! I do ship Cream and Tails but more of a childhood crush!
 
+Fandoms: STH, Mario, Dandy's world, Pokémon, Fnf, Fnaf, mouthwash, MLP, Creepypastas!
 
-Roblox: 
-My user is Manglexfoxy327 ( i was young HELP )
-i mostly play TD or just random games!
-i love making new friends as well!
+DNI: Pedos, zoophilia, racists, sexists, rapists.. ect!
 
-
-Have a good day/night pookies❤️❤️❤️❤️
+I mostly Play Roblox and Ponytown, if you want to get to know me! I do love talking to others and making friends! I wont friend automatically tho, i want to get to know people before! My Roblox user is Manglethefox327! And Ill mostly be around the STH area in Ponytown!! 
