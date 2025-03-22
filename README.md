@@ -1,4 +1,4 @@
-Hi. I am Whisper, I go by Whisp, Mangle or Mang! 
+Hi. I am Whisper, I go by Whisp, Mangle or Mang! (I am Single..help)
 
 I am a female, pls be patient with me, i have Adhd, ptsd, major depression and anxiety!
 
