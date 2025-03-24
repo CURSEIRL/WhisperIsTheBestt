@@ -1,13 +1,11 @@
-Hi. I am Whisper, I go by Whisp, Mangle or Mang! (I am Single..help)
+Call me Whisper or Whisp. I don't really care! I don't like people much, I have social anxiety so sorry if I distance myself from you. I am taken so pls try to stay away from inappropriate jokes (unless your a close friend<3) I am 15, and my birth day is August 26!
 
-I am a female, pls be patient with me, i have Adhd, ptsd, major depression and anxiety!
 
-Ships to int: Sonadow, Sonamy, Shadamy, Surgamy, Silvamy, Sonilver, Shadilver, Salamy, Sonally ect!
+I like STH, FNF, FNAF, Pokemon, Creepypasta's, Dandy's world, and MLP (HB and HH DNI pls.)
 
-Ships dni: Any minor ships! I do ship Cream and Tails but more of a childhood crush!
+I play ponytown, Roblox and CRK! (Ask me for any user's!)
 
-Fandoms: STH, Mario, Dandy's world, Pokémon, Fnf, Fnaf, mouthwash, MLP, Creepypastas!
 
-DNI: Pedos, zoophilia, racists, sexists, rapists.. ect!
 
-I mostly Play Roblox and Ponytown, if you want to get to know me! I do love talking to others and making friends! I wont friend automatically tho, i want to get to know people before! My Roblox user is Manglethefox327! And Ill mostly be around the STH area in Ponytown!! 
+
+I have ADHD, anxiety, depression and I get easily jealous (idk why man)
