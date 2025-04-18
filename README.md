@@ -1,16 +1,9 @@
-Call me Whisper, Whisp or Fiona. I don't really care! 
+✶⋆.˚ 𐋅𐌄𐌙! 𐌉'𐌌 𐌂𐌵𐌓𐌔𐌄 Ꝋ𐌓 Ꮤ𐋅𐌉𐌔𐌐𐌄𐌓! [𐌁𐌉ᏵᏵ𐌄𐌔𐌕 𐌊𐌉𐌍'𐌔]   
 
-I like STH, FNF, FNAF, Pokemon, Creepypasta's, Dandy's world, and MLP (HB and HH DNI pls.)
+ᛑᔕ, 𐌀𐌋𐌌Ꝋ𐌔𐌕 ᛑᑳ ᏔꝊ𐋅Ꝋ! 𐌀𐌍𐌃 𐌉 𐌀𐌌 𐌋𐌄𐌔𐌁𐌀𐌉𐌍! >ᴗ< 🏳️‍🌈 
 
-I play ponytown, Roblox and CRK! (Ask me for any user's!)
+𐌂 + 𐋅 𐌅𐌓𐌄𐌄𐌋𐌙 𐌉𐌃𐌌 𐌀𐌕 𐌀𐌋𐌋! 𐌉𐌌 𐌌Ꝋ𐌔𐌕𐌋𐌙 𐌀𐌕 𐌔𐌕𐋅, 𐌅𐌍𐌅, 𐌅𐌍𐌀𐌅 Ꝋ𐌓 𐌃Ꮤ 𐌀𐌓𐌄𐌀'𐌔! 
 
+𐌉'𐌌 𐌒𐌵𐌉𐌄𐌕 𐌀𐌕 𐌅𐌉𐌓𐌔𐌕 𐌁𐌵𐌕 𐌉'𐌋𐌋 Ꮤ𐌀𐌓𐌌 𐌵𐌐 ᘖ 𐌙Ꝋ𐌵!  
 
-
-
-I have ADHD, anxiety and depression 
-
-
-DNI: Sexist, Rapist, pedo's, 19+, VERY dark humor, Kms or Kys jokes, Suicide jokes and fat/ugly jokes.
-
-
-feel free to sit with me when ever you want! Im always free to chat even though im not the best.
+𐌉 𐌋Ꝋᕓ𐌄 𐌕Ꝋ 𐌌𐌀𐌊𐌄 𐌍𐌄Ꮤ 𐌅𐌓𐌉𐌄𐌍𐌃𐌔! 𐌉'𐌌 𐌌Ꝋ𐌔𐌕𐌋𐌙 𐋅𐌀𐌍Ᏽ𐌉𐌍Ᏽ 𐌀𐌓Ꝋ𐌵𐌍𐌃 Ꮤ𐌉𐌕𐋅 𐌕𐋅𐌄𐌌 𐌀𐌔 Ꮤ𐌄𐌋𐌋! ✶⋆.˚
